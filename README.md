@@ -8,7 +8,7 @@
 
 | Current/Last Watch | Director  |
 | ------- | ----------- |
-|Current: Bottle Rocket, 1996| Wes Anderson|
+|Current: The Darjeeling Limited, 1996| Wes Anderson|
 
 
 ---
